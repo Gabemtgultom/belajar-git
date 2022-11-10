@@ -1,2 +1,2 @@
 Belajar GIT dengan semangat oke gays
-Nama : Gabe
+Nama : Gabe Maruli 
